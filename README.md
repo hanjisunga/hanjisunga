@@ -1,8 +1,8 @@
-.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-      seu  coração  condensava
+    seu  coração  condensava
 e  se  espalhavam  como  orvalho
-             da  manhã  ♡  han
+    da  manhã  ♡  han
 
 
 .im making a project in alura, for school.
