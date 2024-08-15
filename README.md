@@ -1,7 +1,6 @@
-
-*welcome to ma profile* :❤🎀
-︶︶︶ ⊹ ︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶
-
+      seu  coração  condensava
+e  se  espalhavam  como  orvalho
+             da  manhã  ♡  han
 
 .im making a project in alura, for school.
 .studying javascript
