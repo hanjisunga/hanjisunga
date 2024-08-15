@@ -2,6 +2,7 @@
 *welcome to ma profile* :❤🎀
 ︶︶︶ ⊹ ︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶
 
+
 .im making a project in alura, for school.
 .studying javascript
 .she/him
